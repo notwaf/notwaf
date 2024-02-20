@@ -1,3 +1,3 @@
 account owned by [fawaf](https://github.com/fawaf)
 
-click [HERE](https://www.waf.hk/okta) for more info
+click [HERE](https://www.xilef.org/okta) for more info
